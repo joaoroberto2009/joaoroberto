@@ -1,1 +1,2 @@
-# joaoroberto
+Oi, sou o João Roberto, mais conhecido como ''João'', sou um garoto que ama viver e levar a vida com leveza, poucas coisas me deixam mal, eu me chateio claro, mas ficar realmente mal é raro, procuro sempre mostrar felicidade pra levar alegria para as pessoas, porque sinto culpa em trazer meus problemas para as pessoas achando que vou deixar a pessoa mal e preocupada sabe?
+Sou bem feliz, não existe algo a reclamar, gosto de sair com meus amigos pra me divertir, nada muito relacionado a festas e sim praia e momentos mais calmos, gosto muito de jogar bola, jogar futevolei e sair com minha familia também.
